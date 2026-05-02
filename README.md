@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي تعال في حضني الليلة
+> أنت النور وأنت أجمل وسيلة
+> قلبي ينبض بحبك في كل حيلة
+> أنت الحب وأنت الروح الجميلة
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
